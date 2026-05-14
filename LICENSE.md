@@ -1,4 +1,4 @@
-# 
+# Get the ultimate pump.fun sniper bot with advanced Liquidity Bot for pump.fun sniper bot | trailing-stop & sandwich-attack-execution. Featuring trailing-stop and
 
 
 
